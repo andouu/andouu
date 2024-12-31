@@ -1,1 +1,1 @@
-![github_cover](https://github.com/user-attachments/assets/a6f17e5e-1939-4547-b420-c32a9bb976c8)
+![github_cover](https://github.com/user-attachments/assets/ac2d8af2-5712-4de5-b43d-814a7606cc08)
